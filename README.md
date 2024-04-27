@@ -1,1 +1,2 @@
-https://discord.gg/RDTVmdYHs6
+https://discord.gg/uhq
+https://discord.gg/uhqworld
